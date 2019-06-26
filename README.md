@@ -1,1 +1,1 @@
-# TiborGalko.github.io
+# github.io
